@@ -1,2 +1,0 @@
-# GDWFall26Actual
-
